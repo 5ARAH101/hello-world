@@ -11,5 +11,14 @@ Toooooo  meeeeeee.
 
 (Instrumental)
 
+Mama just killed a man.
+Put a gun against his head, pulled my trigger now he's dead.
+Mama, life has just begun.
+But now I've gone and thrown it away.
+Mama, ooh woo ooh. (ding ding)
+Didn't mean to make you cry.
+If I'm not back again this time tommorrow, carry on, carry on as if nothing even mattered.
+
+(Instrumental)
 
 
